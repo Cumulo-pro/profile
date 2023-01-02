@@ -1,5 +1,5 @@
 # Cumulo
-> Cumulo #blockchain breaks into this technology by putting at your service the disruptive talent that defines us to build the next technological future. [Cumulo.pro](http://cumulo.pro/en/).
+> Cumulo #blockchain breaks into this technology by putting at your service the disruptive talent that defines us to build the next technological future. [Cumulo.pro](http://cumulo.pro/en/)
 ![image](https://user-images.githubusercontent.com/2853158/210152788-6857a81e-40b9-48f2-a593-2e4da5384728.png)
 
 <h3>What we do</h3>
